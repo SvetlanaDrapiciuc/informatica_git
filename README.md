@@ -1,0 +1,7 @@
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/8d1392dd-6900-47cc-a08b-74b674563ed9)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/8494c298-dbdb-4d70-8296-79fa18ef8a3d)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/a7816fc8-bc17-4a48-8b03-00515979bd3f)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/23087e09-6644-4171-a525-dd9c2b13b7a8)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/42899f5a-f6b9-493d-bb0f-61e36565253a)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/a7cedbd3-44c7-450f-8233-14034f6e5268)
+![image](https://github.com/SvetlanaDrapiciuc/informatica_git/assets/157103939/e0cadcde-7a8b-48d2-a6db-ca452014a72d)
